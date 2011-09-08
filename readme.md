@@ -7,6 +7,6 @@ un proyceto opensource de @Tijuanarb
 bye
 
 Astr0surf3fr
--------------------------
-astr0surf3r@gmail.com
+-----------------------------------
+http://www.twitter.com/astr0surf3r
 
